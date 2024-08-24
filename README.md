@@ -2,7 +2,6 @@
 
 ## Need Support or Want Updates? Join the Community
 **Discord Server:** [Join here](https://discord.gg/UqFQayVTAA)  
-*Note: The old server was terminated, and the vanity URL was taken.*
 
 ---
 # Fortnite
